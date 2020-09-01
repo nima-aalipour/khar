@@ -1,2 +1,0 @@
-# kharkoseh
-pak nemisheh
